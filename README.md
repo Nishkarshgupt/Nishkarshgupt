@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **nishkarshgupta111@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1H0tyIZZ3lHnTQE9oZezXuSQGqsDuEmKr/view?usp=drive_link](https://drive.google.com/file/d/1H0tyIZZ3lHnTQE9oZezXuSQGqsDuEmKr/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1v1K_HD-tfrcLnNi2L5HFXUWb8QORkplj/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am funny😅😅**
 
