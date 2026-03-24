@@ -7,13 +7,13 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=nishkarshgupt&label=Profile%20views&color=0e75b6&style=flat" alt="nishkarshgupt" /> </p>
 
-- 👨‍💻 All of my projects are available at [https://portfolio-nishkarsh.netlify.app/](https://portfolio-nishkarsh.netlify.app/)
+- 👨‍💻 All of my projects are available at [PORTFOLIO](https://portfolio-nishkarsh.netlify.app/)
 
 - 💬 Ask me about **JAVA**
 
 - 📫 How to reach me **nishkarshgupta111@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1v1K_HD-tfrcLnNi2L5HFXUWb8QORkplj/view?usp=sharing)
+- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/1v1K_HD-tfrcLnNi2L5HFXUWb8QORkplj/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am funny😅😅**
 
